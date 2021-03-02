@@ -1,5 +1,5 @@
 ## **Khomenko Olha**
-*sellpfone*+380930800008; *email* xomolya@gmail.com
+### *sellpfone*+380930800008; *email* xomolya@gmail.com
 
 Married. In the period from 2008 to 2017 was on maternity 
 leave for caring for 2 children born in 2009 and 2014. During maternity period was engaged 
