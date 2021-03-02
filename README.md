@@ -1,3 +1,3 @@
 # rsschool-cv
 RS school stage 0
-https://xomolya.github.io/rsschool-cv/cv
+https://github.com/xomolya/rsschool-cv/blob/gh-pages/cv.md
